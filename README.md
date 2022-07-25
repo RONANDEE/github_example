@@ -1,2 +1,1 @@
-#sdknsfnkjsnasnfsdnf;j
-asfnasjngwang[]
+#แก้ไข
